@@ -1,4 +1,4 @@
-# _On-Chain Data Challenge | 
+#  | On-Chain Data Challenge | 
 
 ## WILD CARD OPTION✨
 
