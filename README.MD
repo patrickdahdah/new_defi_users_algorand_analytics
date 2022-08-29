@@ -1,4 +1,4 @@
-# _On-Chain Data Challenge | Patrick <> Messari_
+# _On-Chain Data Challenge | 
 
 ## WILD CARD OPTION✨
 
